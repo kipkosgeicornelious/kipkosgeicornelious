@@ -12,7 +12,7 @@
 
 📫 **How to Reach Me:**  
 - Email: [kipkosgeicornelious6@gmail.com](mailto:kipkosgeicornelious6@gmail.com)
-- Twitter:@skylineRebel
+- Twitter: @SkylineRebel
 - LinkedIn: [Cornelious Kipkosgei](https://www.linkedin.com/in/cornelious-kipkosgei)
 
 😄 **Pronouns:**  
